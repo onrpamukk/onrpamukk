@@ -1,2 +1,2 @@
 ### Hi there 👋
-[Wakatime](https://wakatime.com/@onrpamukk)
+[WakaTime](https://wakatime.com/@onrpamukk)
